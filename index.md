@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Hi! I'm Ashley, usually going by Hacktix (or HacktixTM) online. I call this site my cybermindspace - expect many ramblings and unnecessarily long articles on niche stuff I happen to find interesting.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+If you like watching people play games, feel free to stop by my [Twitch Channel.](https://www.twitch.tv/hacktix) I'm usually live at least every other day playing games.
